@@ -1,6 +1,6 @@
-diagnosed system
+diagnosed polyfrag system
 
-ask b4 int + w2i
+ask before interacting + whisper to int
 
 <!--
 **ameripan/ameripan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
