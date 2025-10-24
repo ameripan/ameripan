@@ -1,7 +1,6 @@
-diagnosed polyfrag system
+READ MY STRAWPAGE. carrd is old.
 
-ask before interacting + whisper to int
-
+![blehh](https://i.pinimg.com/736x/e1/23/40/e123406613b44a254042fbbdcfaed25a.jpg)
 <!--
 **ameripan/ameripan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
