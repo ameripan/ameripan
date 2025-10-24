@@ -1,4 +1,6 @@
-READ MY STRAWPAGE. carrd is old.
+READ MY STRAWPAGE. MY CARRD IS OLD
+
+diagnosed system...ok...?you'll bmf...ok???
 
 ![blehh](https://i.pinimg.com/736x/e1/23/40/e123406613b44a254042fbbdcfaed25a.jpg)
 <!--
